@@ -1,4 +1,4 @@
-![I am Upcoming Web Developer. Love to Learning how to write code.](https://scontent.fdac12-1.fna.fbcdn.net/v/t1.6435-9/p600x600/55849207_2211736045809193_5165368342956998656_n.jpg?_nc_cat=107&ccb=1-5&_nc_sid=e3f864&_nc_eui2=AeEWuCtF4-f1NlyY7G1ukpjtgNF5PlSfJK-A0Xk-VJ8kr1CoaRnJCuUTiEsTg9Fh2LzXYHdM1W1JsczNsomX0Ha1&_nc_ohc=2zup9UW94hsAX_kuofV&_nc_ht=scontent.fdac12-1.fna&oh=f3eb16c75cbbe3c6c0c5ff522225ac2d&oe=615C5B2E)
+I am Upcoming Web Developer. Love to Learning how to write code.
 
 # Hi, there 👋 I'm Forhad Khan AJ
 #### I am Upcoming Web Developer. Love to Learning how to write code.
