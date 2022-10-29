@@ -1,4 +1,3 @@
-I am Upcoming Web Developer. Love to Learning how to write code.
 
 # Hi, there 👋 I'm Forhad Khan AJ
 #### I am Upcoming Web Developer. Love to Learning how to write code.
